@@ -1,1 +1,1 @@
-The Most Amazing Red Velvet Cake recipe is moist, fluffy, and has the perfect balance between acidity and chocolate. It’s not simply a chocolate or a white cake dyed red. It has added acidity to give it a flavor like no other.Red velvet cake has an acidic taste that comes from the use of buttermilk and vinegar as well as the cream cheese in the frosting. The acidity is balanced out by the sweetness of the cake itself. 
+Tarak Shah
